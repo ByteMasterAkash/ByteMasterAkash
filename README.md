@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Akash
-**A passionate Cloud Engineer || DevOps Engineer || Kafka Admin from India**
+**A passionate Cloud Engineer || DevOps Engineer || I'M from India**
 
 Email Me 👉 ✉️ **akash22171516@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
